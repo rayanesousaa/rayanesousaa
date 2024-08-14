@@ -1,11 +1,10 @@
 ## bem vindo ao meu perfil🧚‍♀️
 
-- meu nome é Rayane🌻
+- oii sou a Ray🌻
 
 - estou estudando no alura👩‍🎓
-
 - gosto de desenha🖼️🖌️
-
+- dorameira🎞️
 - amo música🎵
 ### você entra  em contato comigo📪
 
