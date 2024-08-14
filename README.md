@@ -11,4 +11,4 @@
 
 00001118552672SP@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/3V8d2y-NT6cAAAAd/astro-cha-eunwoo.gif)
+![](https://media1.tenor.com/m/3R5YWJKZz7EAAAAd/eunwoo-cha.gif)
